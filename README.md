@@ -1,4 +1,4 @@
-HAIIII GLENN HAIII!!! >0<
+HAIIII GLENN HAIII!!! >o<
 ![image](https://github.com/user-attachments/assets/c5f3796a-b713-4c6f-811b-be79875040b8)
 
 
