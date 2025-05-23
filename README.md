@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=V4mqogh&color=dc143c)
+![](https://komarev.com/ghpvc/?username=V4mqogh&color=bbcdcf)
 
 idgaf. just megascream kissing
 
