@@ -2,7 +2,8 @@
 
 idgaf. just megascream kissing
 
-![image](https://github.com/user-attachments/assets/3c311be1-ffaf-4359-8f3a-c9d32c832772)
+![image](https://github.com/user-attachments/assets/dce67325-716d-495c-835c-539a5c0e0a61)
+
 
 
 
