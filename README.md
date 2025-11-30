@@ -1,7 +1,8 @@
 ![](https://komarev.com/ghpvc/?username=V4mqogh&color=cadce3)
 
 
-![image](https://github.com/user-attachments/assets/8fe14940-ae7e-46a8-b91a-8e2439cd1889)
+![image](https://github.com/user-attachments/assets/110fa9e5-2a08-4435-beba-a57fe0ee2283)
+
 
 
 
