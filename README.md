@@ -1,7 +1,8 @@
 ![](https://komarev.com/ghpvc/?username=V4mqogh&color=cadce3)
 
 
-![image](https://github.com/user-attachments/assets/110fa9e5-2a08-4435-beba-a57fe0ee2283)
+
+fratjo armpit licker
 
 
 
