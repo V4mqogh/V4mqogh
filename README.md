@@ -6,13 +6,6 @@
 
 
 
-https://github.com/user-attachments/assets/65fffdf9-ddb7-424c-8337-eb27d912a85f
-
-
-
-an animation i made ig
-
-
 
 
 
