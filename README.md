@@ -1,9 +1,8 @@
+
 ![](https://komarev.com/ghpvc/?username=V4mqogh&color=cadce3)
 
 
-
-<img width="160" height="160" alt="image" src="https://github.com/user-attachments/assets/0ab77249-02a0-4ef3-a7f4-695b14f8845f" />
-
+<img width="1199" height="902" alt="IMG_1086" src="https://github.com/user-attachments/assets/c1f10083-b78c-4d50-9514-8153e293525f" />
 
 
 
