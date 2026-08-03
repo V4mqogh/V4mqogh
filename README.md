@@ -5,6 +5,9 @@
 
   ![](https://komarev.com/ghpvc/?username=V4mqogh&color=5062B8)
 
+  [.𖥔 ݁ ˖ ꜱᴛʀᴀᴡᴘᴀɢᴇ](https://odeofworldbearing.straw.page)
+        [・ᴀᴛᴀʙᴏᴏᴋ](https://sukugos.atabook.org/)
+
 <img width="500" height="auto" alt="IMG_1135" src="https://github.com/user-attachments/assets/b3e888bc-844f-4d39-9e13-ff23cd146465" />
 
 
