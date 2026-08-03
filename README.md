@@ -1,11 +1,17 @@
-
-![](https://komarev.com/ghpvc/?username=V4mqogh&color=cadce3)
-
-
-<img width="1399" height="1413" alt="IMG_1106" src="https://github.com/user-attachments/assets/1fd3dd68-c219-411b-95f3-00d87a7d418e" />
+<img width="500" height="200" alt="Untitled61_20260803094649" src="https://github.com/user-attachments/assets/36a3b793-2a54-4abd-b309-da6ef19a51a1" />
 
 
-art by me!
+  <img width="400" height="400" alt="Untitled59_20260802133340" src="https://github.com/user-attachments/assets/67d9f42d-4053-4b3a-836e-fa270a17ee94" />
+
+<img width="500" height="200" alt="IMG_1135" src="https://github.com/user-attachments/assets/5e123814-51ea-477f-adf3-ff5287cea897" />
+
+
+
+  ![](https://komarev.com/ghpvc/?username=V4mqogh&color=cadce3)
+
+
+
+
 
 
 
